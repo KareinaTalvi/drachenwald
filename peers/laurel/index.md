@@ -2,7 +2,7 @@
 title: Order of the Laurel
 ---
 
-The 'bestowed peerages' refer to those peerages which come from the hand of the king and queen. 
+The 'Beautiful bestowed peerages' refer to those peerages which come from the hand of the king and queen. 
 
 The Order of the Laurel are a Society-wide order, which recognises excellence in some area of the arts or sciences of peace. 
 
